@@ -1,2 +1,2 @@
-# nas_is_Illmatic
-How dope Nas!!!!
+# Basic html bio
+Freddro is too dope!!!!
